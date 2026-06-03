@@ -1,4 +1,4 @@
-# 
+# Instantâneo uniswap trading bot predefinições para Mac OS | Melhor uniswap trading bot predefinições para PC Windows. Com gerenciamento de carteira e ordens stop-loss — otimizado para máximo desempenho em cada plataforma.
 
 
 
